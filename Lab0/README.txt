@@ -1,0 +1,1 @@
+I, Rory Glenn, have read and understood the CSE12 syllabus and Personal Responsibility Document. rrashkin 8 April 2019
